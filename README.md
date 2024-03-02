@@ -1,4 +1,4 @@
-- Eu sou o Marcos Sousa 👋 <br/>
+- Eu sou o Marcos Lúcio 👋 <br/>
 - Apaixonado por tecnologia e educação
 🤿
 
